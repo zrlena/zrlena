@@ -7,6 +7,6 @@
 
 
 <!---
-zrlena/zrlena is a https://instagram.com/_lena07?igshid=MzRlODBiNWFlZA== because its `README.md` (this file) appears on your GitHub profile.
+zrlena/zrlena is a ✨ special ✨ repository because its https://instagram.com/_lena07?igshid=MzRlODBiNWFlZA== because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
