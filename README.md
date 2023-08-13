@@ -3,6 +3,7 @@ I'm LENA❤️‍🔥
 ✓Crazy Gurl In GitHub✨🌎
 ✓EDITOR; CREATOR 👩🏻‍💻🎭
 Nice to meet uh 🫱🏻‍🫲🏼
+*N-joy ur lyf*
 
 <!---
 zrlena/zrlena is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
